@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with updated Polymarket Module | market-making + high-frequency-trading, the #1 module. Includes market-making and high-frequency-trading for a
 
 
 
